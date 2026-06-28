@@ -9,4 +9,3 @@ $\color{#FF3006}{\textsf{THIS IS AN ALT ACCOUNT,ㅤ}}$
 [FOLLOW MY MAIN](https://github.com/j777ckpot) <br>
 <sup>$\color{#ba1100}{\textsf{⎯⎯}}$</sup>ㅤ[BYI & DNI (.CC)](https://pronouns.cc/@7-trials)ㅤ[新BOOK](https://7-trials.atabook.org)ㅤ[STRAW.PAGE](https://7-trials.straw.page) <br>
 ㅤ<br>
-ㅤ<br>
